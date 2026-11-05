@@ -2,8 +2,8 @@
 - 👀 I’m interested in becoming a cybersecurity analyst
 - 🌱 I’m currently learning Google Cyber security and web development certifications 
 - 💞️ I’m looking to collaborate on various projects I am working on
-- 📫 How to reach me huntress254@gmail.com  
-- 😄 Pronouns: Her
+- 📫 How to reach me bkipkorir61@gmail.com   
+- 😄 Pronouns: Him
 - ⚡ Fun fact: I like reading and watching movies and series
 
 <!---
